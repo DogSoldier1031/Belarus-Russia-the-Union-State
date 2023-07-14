@@ -37,3 +37,7 @@ https://www.scienceopen.com/document_file/e2740363-cbd7-4ea7-b3d1-163965b04402/S
 https://www.oneplanetnetwork.org/sites/default/files/from-crm/national_strategy_for_sustainable_development_of_belarus.pdf
 
 https://president.gov.by/en/events/utverzhdeny-parametry-prognoza-socialno-ekonomicheskogo-razvitiya-belarusi-na-2023-god
+
+https://www.upi.com/amp/Archives/1995/11/27/Belarus-leader-defends-Hitler-praise/9348817448400/
+
+https://www.reuters.com/article/us-belarus-dicator/belaruss-lukashenko-better-a-dictator-than-gay-idUSTRE8230T320120304
