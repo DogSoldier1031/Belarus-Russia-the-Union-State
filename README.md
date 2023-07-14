@@ -41,3 +41,5 @@ https://president.gov.by/en/events/utverzhdeny-parametry-prognoza-socialno-ekono
 https://www.upi.com/amp/Archives/1995/11/27/Belarus-leader-defends-Hitler-praise/9348817448400/
 
 https://www.reuters.com/article/us-belarus-dicator/belaruss-lukashenko-better-a-dictator-than-gay-idUSTRE8230T320120304
+
+https://amp.cnn.com/cnn/2020/07/28/europe/alexander-lukashenko-coronavirus-infection-intl/index.html
