@@ -32,3 +32,8 @@ https://www.cnn.com/2023/05/28/europe/lukashenko-nuclear-weapons-belarus-russia-
 
 https://www.aa.com.tr/en/asia-pacific/kazakhstan-rejects-belarus-offer-to-join-union-state-with-russia/2909048#
 
+https://www.scienceopen.com/document_file/e2740363-cbd7-4ea7-b3d1-163965b04402/ScienceOpen/worlrevipoliecon.11.4.0428.pdf
+
+https://www.oneplanetnetwork.org/sites/default/files/from-crm/national_strategy_for_sustainable_development_of_belarus.pdf
+
+https://president.gov.by/en/events/utverzhdeny-parametry-prognoza-socialno-ekonomicheskogo-razvitiya-belarusi-na-2023-god
